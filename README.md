@@ -1,1 +1,3 @@
-[k](https://osu.ppy.sh/users/16480158)
+### [T I M M E H](https://quinten814.neocities.org/)
+
+hi i'm quinten and this is my github
